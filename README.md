@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Starfier
 - 👻 I Love Mod Old Fortnite Build
 - 👁️‍🗨️ My Favorite Fortnite Build is 4.2 
-- 🌜 Contact Me on discord: Starfier#5788
+- 🌜 Contact Me on discord: Starfier#4193
 - 🤙 If you want speak , add me on discord 
